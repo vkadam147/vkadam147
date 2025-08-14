@@ -1,4 +1,4 @@
-# 💫Vaishnavi Kadam 💫:
+# 🤖Vaishnavi Kadam 🤖:
 Hi there! 👋 I'm **Vaishnavi Kadam**  
 🎓 Pursuing **MCA** at **Sinhgad Institute of Management**  
 📍 Based in Pune, India  
